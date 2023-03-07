@@ -1,4 +1,4 @@
-# josephzizys.github.io
-my website.
+# paradisebookshop.com.au   
+website coming soon
 
-email me at joseph.zizys@gmail.com or follow me on twitter at josephzizys
+email us at info@paradisebookshop.com.au for all your bookish enquiries!
